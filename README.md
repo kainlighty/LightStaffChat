@@ -6,4 +6,4 @@
 
 # Did you find a problem?
 
-* Contact me on Discord author: xii69
+* Contact author Discord: xii69
